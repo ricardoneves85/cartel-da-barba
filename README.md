@@ -1,1 +1,0 @@
-# cartel-da-barba
